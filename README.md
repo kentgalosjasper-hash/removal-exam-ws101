@@ -1,0 +1,2 @@
+# removal-exam-ws101
+SUBMITTED BY: GALOS, JASPER KENT A.
